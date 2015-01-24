@@ -1,1 +1,1 @@
-# web.namelessmodpack.ml / naelessmodpack.github.io
+# web.namelessmodpack.ml / namelessmodpack.github.io
